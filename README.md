@@ -14,3 +14,6 @@ pictures of Jesse.        ![image](https://github.com/user-attachments/assets/18
                                                                               ![image](https://github.com/user-attachments/assets/aeb9428c-5d5c-4ebe-87da-72c553d11fc4)
                                          An important disclosure - there are times when you certainly should NOT do what Jesse would do! Like smoking cigarettes
 🚭.                                                                  Jesse’s cause of death was a brain aneurysm.                                
+and if you have any more pictures of Jesse or more different ideas that Jesse had that I didn't put in here you can email me. 
+my email is xnelson2012@icloud.com.
+and it would be really appreciated👍
